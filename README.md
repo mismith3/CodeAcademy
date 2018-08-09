@@ -1,3 +1,0 @@
-# CodeAcademy
-CodeAcademy
-
